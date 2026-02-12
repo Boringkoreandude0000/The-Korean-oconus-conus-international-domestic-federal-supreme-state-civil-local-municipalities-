@@ -1,6 +1,7 @@
 # The-Korean-oconus-conus-international-domestic-federal-supreme-state-civil-local-municipalities-
 Steam terrorist high value target lists at foua.giv global citizen civilians pedestrians real value lists at counter terrorism then srbitration at hood weather updates or free open source computing cooperations
 
+##in person ohysical realities anyone taking stuff are thuefs they need to be all cuffed and taken to corrections that means ab object without permission as in asking in person internet stalking internet crimes needs to be handked by bedtbuy geeksquad backmarket blackmarket then any theft related physical would be taken right there reoeating cycles 
 Information regarding clandestine, unlicensed, or unauthorized radio operations, along with related frequencies, call signs, and station data, is managed by the Federal Communications Commission (FCC) and is frequently subject to Freedom of Information Act (FOIA) requests. 
 FCC Enforcement and Unlicensed Operations
 Pirate Radio Crackdown: The FCC prioritizes identifying and taking action against "pirate" or unauthorized radio operators who use frequencies assigned to legitimate stations, causing interference.
